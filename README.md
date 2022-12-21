@@ -6,3 +6,4 @@ Standing For Iran, Removing And Defeating Islamic Republic From OUR Country! #ma
 
 
 ![Flag of zza](https://github.com/danwem/StandWithIran/blob/main/zzaflag60per.png?raw=true)
+(Soon as possible, i'll write text on this flag; I Don't Have time yet.)
